@@ -1,1 +1,2 @@
 # portefolio
+# Voici mon portefolio, à jour du 15 mars 2025. Il comporte 3 rubriques illustrant les différentes approches cartographiques et artistiques qui sont les miennes. Les cartes réelles sont réalisées après un travail de renseignement, tout en conservant une relative licence artistique. Les cartes imaginaires tentent d'être fidèles à leur modèle dans le cas des reproductions, ou avec un travail de worldbuilding, à l'instar d'Elwénaria ou Lécée.
